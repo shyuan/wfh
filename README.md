@@ -9,3 +9,4 @@
 * [Backbone](https://www.backbone.tw/)
 * [IRIS OHYAMA 愛麗思歐雅瑪](https://www.irisohyamatw.com/)
 * [Bestmade 人學院](https://bestmade.com.tw/)
+* [STANDWAY](https://www.standway.com.tw/)
