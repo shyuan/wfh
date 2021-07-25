@@ -10,4 +10,4 @@
 * [IRIS OHYAMA 愛麗思歐雅瑪](https://www.irisohyamatw.com/)
 * [Bestmade 人學院](https://bestmade.com.tw/)
 * [STANDWAY](https://www.standway.com.tw/)
-* [DEZCTOP](https://dezctop.com/tw/)
+* [HIGHLY 海力工學](https://www.highlyindesign.com/)
