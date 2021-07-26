@@ -12,6 +12,7 @@
 * [STANDWAY](https://www.standway.com.tw/)
 * [HIGHLY 海力工學](https://www.highlyindesign.com/)
 * [MonitorMate](https://www.monitormate.com.tw/)
+* [MOFT](https://www.moft.tw/)
 
 # 鍵盤品牌
 
