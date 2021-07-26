@@ -13,6 +13,7 @@
 * [HIGHLY 海力工學](https://www.highlyindesign.com/)
 * [MonitorMate](https://www.monitormate.com.tw/)
 * [MOFT](https://www.moft.tw/)
+* [ADAM 亞果元素](https://www.adamelements.com.tw/)
 
 # 鍵盤品牌
 
