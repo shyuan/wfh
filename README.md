@@ -11,3 +11,14 @@
 * [Bestmade 人學院](https://bestmade.com.tw/)
 * [STANDWAY](https://www.standway.com.tw/)
 * [HIGHLY 海力工學](https://www.highlyindesign.com/)
+
+# 鍵盤品牌
+
+* [LOFREE](https://www.lofree.info/lkb)
+* [Keychron](https://www.keychron.com.tw/)
+* [Ducky](https://www.duckychannel.com.tw/tw)
+* [硬派精璽](https://www.inpad.com.tw/)
+
+# 雜貨
+
+* [Unipapa](https://www.unipapa.com)
